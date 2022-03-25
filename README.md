@@ -1,0 +1,1 @@
+https://github.com/Katoli-IV-ka/rsschool-cv/blob/gh-pages/cv.md
