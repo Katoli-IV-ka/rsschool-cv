@@ -6,6 +6,7 @@ It's certainly not me, but I'm very similar. My name is Max Khvedinich.
 
 ### My social:
 
+---
 
 Telegram: [@KhvedinichMaksimOlegovich](https://t.me/KhvedinichMaksimOlegovich) 
 
@@ -15,6 +16,7 @@ Gmail: MaxKhvedinich@gmail.com
 
 ### About myself:
 
+---
 
 I am 19 years old. I was born, live and study in Brest (Belarus).
 
